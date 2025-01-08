@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @baru0pl
-- 👀 I’m interested projektem własnej wagi pasiecznejna wifi lub GSM 
+- 👀 I’m interested ,design your own beekeeping scale for wifi or GSM
 - 🌱 I am a beekeeper, bees are my passion, I like to share knowledge about bees and bee products
 - 📫 pasiekabajorek@gmail.com
 - 😄 Pronouns: . man :)
